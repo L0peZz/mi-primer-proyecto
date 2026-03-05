@@ -1,3 +1,3 @@
 # mi-primer-proyecto
 
-Hola, Maria es mi novia y la quiero mucho. Manana hacemos 7 meses.
+Hola, manana 6 de marzo hago 7 meses con Maria y tengo pruebas fisicas de los arbitros.
